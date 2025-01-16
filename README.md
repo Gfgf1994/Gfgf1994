@@ -9,7 +9,7 @@ My dream job is to work in the game industry, where I can combine my passion for
 However, I am also fascinated by the world of data and enjoy exploring insights and patterns within datasets.
 
 Background
-🎓 I'm a Computing graduate, set to graduate in February 2025.
+🎓 I'm a Computing graduate, January 2025.
 💼 Currently, I'm working in hospitality, where I honed valuable skills in customer service, problem-solving, and management.
 Career Transition
 My journey into IT represents a shift from providing exceptional service in the hospitality industry to contributing to cutting-edge technologies. 
